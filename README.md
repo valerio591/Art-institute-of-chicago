@@ -1,1 +1,1 @@
-# Art-institute-of-chicago-
+# Art-institute-of-chicago
